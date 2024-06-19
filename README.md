@@ -22,21 +22,16 @@ Comunicación Efectiva: Mantengo una comunicación clara y abierta con mis coleg
 Resolución de Conflictos: Manejo los conflictos de manera constructiva, buscando soluciones que beneficien al equipo y al proyecto en su conjunto.
 Mentoría y Capacitación: Disfruto compartir mi conocimiento y experiencia con otros, ayudando a desarrollar las habilidades de mis compañeros de equipo y promoviendo un ambiente de aprendizaje continuo.
 Adaptabilidad: Estoy siempre dispuesto a ajustarme a nuevas metodologías y tecnologías, asegurando que el equipo pueda responder de manera ágil a los cambios y desafíos.
-Contacto
+Estoy siempre abierto a nuevas oportunidades y colaboraciones. No dudes en contactarme si estás interesado en trabajar juntos o simplemente quieres conectar.
+
+Contacto:
+
 Email: ies31172@gmail.com
+
 LinkedIn: https://www.linkedin.com/in/ivan-salva-57a98630/
 
-Estoy siempre abierto a nuevas oportunidades y colaboraciones. No dudes en contactarme si estás interesado en trabajar juntos o simplemente quieres conectar.
+
 
 ¡Gracias por visitar mi perfil de GitHub!
 
 
-
-
-
-
-
-
-
-
-ChatGPT puede
